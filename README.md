@@ -1,3 +1,3 @@
 # Beginner Project On Github 
 
-Trust the Process
+Trust the Process from today 
